@@ -1,4 +1,4 @@
-- Hi, I’m @Atea
+- Hi, I’m @Atera
 - I like to play games.
 - just find me on discord if you ever need to: Atera
 
